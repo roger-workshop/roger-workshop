@@ -1,0 +1,4 @@
+- 👋 Hi, it's me roger, from roger-workshop in Hong Kong,
+- 👀 I enjoy whole life working n learning n travelling , instead of wasting life precious time on doing physical excercise ???
+- 💞️ I’m looking to collaborate on internation sales business,
+- 📫 I can be reach on (852) 52812555 whatsapp hongkong.
